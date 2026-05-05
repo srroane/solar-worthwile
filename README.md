@@ -1,1 +1,1 @@
-# solar-worthwile
+# solar-worthwhile
